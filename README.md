@@ -1,2 +1,2 @@
-# maral0826..github.io
+# maral0826.github.io
 itv.maral
